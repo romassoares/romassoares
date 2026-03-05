@@ -44,7 +44,7 @@ Tenho experiência no desenvolvimento de sistemas escaláveis, APIs REST, interf
 
 ### 📞 Contato
 
-📱 **WhatsApp:** (86) 98613-3208  
+📱 **WhatsApp:** (86) 986133-2085  
 📧 *Disponível via LinkedIn ou Instagram*
 
 ---
